@@ -10,7 +10,7 @@ Melanie is a fairly modest and African-American girl. She is in 6th grade and go
 ### April Hall
 April is a Hollywood-influenced kid, who is living with her grandma for some time while her mother is on tour. She tries to act like her mother and use her last name (April Dawn,) which makes her act very grown-up. She is friends with Melanie.
 
-![Image]https://vignette3.wikia.nocookie.net/greensky/images/7/71/Char-game-april.jpg/revision/latest?cb=20100520161735
+![Image](https://vignette3.wikia.nocookie.net/greensky/images/7/71/Char-game-april.jpg/revision/latest?cb=20100520161735)
 
 ### Marshall Ross
 Marshall is Melanie's little brother. He has a big octopus that he carries around everywhere similar to Linus's "security blanket." It is cleverly named "Security." Marshall is not one of the original players, but he is the first to join after Melanie and April created it. 
@@ -24,7 +24,18 @@ Ken is Japanese, and he is considered cute in a "big blunt cocky" way. He is als
 ![Image]https://vignette2.wikia.nocookie.net/greensky/images/6/63/Char-game-ken.jpg/revision/latest?cb=20100520161431
 
 ### The Professor/ Dr. Huddleston
-The Professor is a strange man who runs a shop, A-Z Curio Antiques. Many were intrigued and scared by him, and some dared each other to visit him, however they never actually made it. He has a poker face, he doesn't react to much. This results in many being scared of him. Near the end of the book, ***SPOILER ALERT***
+The Professor is a strange man who runs a shop, A-Z Curio Antiques. Many were intrigued and scared by him, and some dared each other to visit him, however they never actually made it. He has a poker face, he doesn't react to much. This results in many being scared of him. When a murder takes place, he is naturally the main suspect. Near the end of the book, ***SPOILER ALERT***
+
+
+
+
+
+
+
+
+
+
+
 
 
 
