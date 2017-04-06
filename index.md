@@ -17,11 +17,12 @@ Marshall is Melanie's little brother. He has a big octopus that he carries aroun
 
 ### Toby Alvillar
 Toby is regarded at first by Melanie and April as weird, while he joins the game later. He is very popular with the school kids and is a fast runner. He is a "class clown" and sometimes teased April, while they had no intention of bullying them. His best friend is Ken Kamata.
+Sorry, no image here :(
 
 ### Ken Kamata 
 Ken is Japanese, and he is considered cute in a "big blunt cocky" way. He is also popular with his classmates. He is also shy. His best friend is Toby Alvillar.
 
-![Image]https://vignette2.wikia.nocookie.net/greensky/images/6/63/Char-game-ken.jpg/revision/latest?cb=20100520161431
+![Image](https://vignette2.wikia.nocookie.net/greensky/images/6/63/Char-game-ken.jpg/revision/latest?cb=20100520161431)
 
 ### The Professor/ Dr. Huddleston
 The Professor is a strange man who runs a shop, A-Z Curio Antiques. Many were intrigued and scared by him, and some dared each other to visit him, however they never actually made it. He has a poker face, he doesn't react to much. This results in many being scared of him. When a murder takes place, he is naturally the main suspect. Near the end of the book, ***SPOILER ALERT***
