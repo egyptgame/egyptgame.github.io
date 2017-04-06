@@ -17,7 +17,7 @@ Marshall is Melanie's little brother. He has a big octopus that he carries aroun
 
 ### Toby Alvillar
 Toby is regarded at first by Melanie and April as weird, while he joins the game later. He is very popular with the school kids and is a fast runner. He is a "class clown" and sometimes teased April, while they had no intention of bullying them. His best friend is Ken Kamata.
-Sorry, no image here :(
+![Image](http://img1.wikia.nocookie.net/__cb20100520161957/greensky/images/8/8e/Char-game-toby.jpg)
 
 ### Ken Kamata 
 Ken is Japanese, and he is considered cute in a "big blunt cocky" way. He is also popular with his classmates. He is also shy. His best friend is Toby Alvillar.
