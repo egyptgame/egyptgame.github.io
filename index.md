@@ -14,7 +14,7 @@ April is a Hollywood-influenced kid, who is living with her grandma for some tim
 
 ### Marshall Ross
 Marshall is Melanie's little brother. He has a big octopus that he carries around everywhere similar to Linus's "security blanket." It is cleverly named "Security." Marshall is not one of the original players, but he is the first to join after Melanie and April created it. 
-
+![Image](http://vignette2.wikia.nocookie.net/greensky/images/a/a0/Char-game-mar.jpg/revision/latest?cb=20100520161233)
 ### Toby Alvillar
 Toby is regarded at first by Melanie and April as weird, while he joins the game later. He is very popular with the school kids and is a fast runner. He is a "class clown" and sometimes teased April, while they had no intention of bullying them. His best friend is Ken Kamata.
 ![Image](http://img1.wikia.nocookie.net/__cb20100520161957/greensky/images/8/8e/Char-game-toby.jpg)
